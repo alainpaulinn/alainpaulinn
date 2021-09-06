@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alainpaulinn
-- 👀 I’m interested in Web programming, but i do also .Net C#, Java, Python and C++ programming
+- 👀 I’m interested in Web programming, but i do also interested in .Net C#, Java, Python
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on a bigger project withing the above listed languages, I am always eager to contribute
 - 📫 How to reach me :
