@@ -6,4 +6,3 @@
     alainpaulinn@gmail.com
     +48 883 429 769, Warsaw Poland
     https://www.linkedin.com/in/alain-paulin-niyonkuru/
-    Personal website: http://alainpaulin.ml
