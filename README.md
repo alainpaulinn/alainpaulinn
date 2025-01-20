@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on a bigger project withing the above listed languages, I am always eager to contribute
 - 📫 How to reach me :
     alainpaulinn@gmail.com
-    +48 883 429 769, Warsaw Poland
+    Warsaw Poland
     https://www.linkedin.com/in/alain-paulin-niyonkuru/
